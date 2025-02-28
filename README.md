@@ -1,4 +1,4 @@
-## Hi there 👋
+![photo_2025-02-01_10-15-15](https://github.com/user-attachments/assets/0807cc06-c679-409b-a56a-254f174330a6)## Hi there 👋
 
 <!--
 **RadenUPI-EDU/RadenUPI-EDU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
